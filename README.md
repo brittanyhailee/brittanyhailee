@@ -1,5 +1,5 @@
 ## Hi! My name is Brittany (bri-tah-nee)
-#### or you can just call me Britt if it's too difficult🙂‍↕️
+#### or you can just call me Britt if it's too difficult
 
 ## Good job! You found one of my digital footprints :D (I wasn't hiding anyway...)
 
