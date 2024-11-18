@@ -1,6 +1,7 @@
 ## Hi! My name is Brittany (bri-tah-nee)
+#### or you can just call me Britt if it's too difficult🙂‍↕️
 
-## Welcome to my corner of the internet!
+## Good job! You found one of my digital footprints :D (I wasn't hiding anyway...)
 
 ![pixel-study](https://github.com/user-attachments/assets/ae3eb50b-c7e1-4c48-bc5e-a1f449da8a8c)
 
