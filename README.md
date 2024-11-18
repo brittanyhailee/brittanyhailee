@@ -6,7 +6,7 @@ or you can just call me Britt if it's too difficult ('-'*)(,_,*)('-'*)(,_,*)
 
 ![pixel-study](https://github.com/user-attachments/assets/ae3eb50b-c7e1-4c48-bc5e-a1f449da8a8c)
 
-.𖥔 ݁ ˖🪐⋆｡𖥔 More good things to come... .𖥔 ݁ ˖🪐⋆｡𖥔
+## .𖥔 ݁ ˖🪐⋆｡𖥔 More good things to come... .𖥔 ݁ ˖🪐⋆｡𖥔
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
