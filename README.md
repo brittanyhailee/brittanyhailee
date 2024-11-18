@@ -1,4 +1,7 @@
-## Hi there 👋
+## Hi! My name is Brittany (bri-tah-nee)
+
+Welcome to my corner of the internet!
+![pixel-study](https://github.com/user-attachments/assets/ae3eb50b-c7e1-4c48-bc5e-a1f449da8a8c)
 
 <!--
 **brittanyhailee/brittanyhailee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
