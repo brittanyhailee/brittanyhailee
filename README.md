@@ -1,6 +1,6 @@
 ## Hi! My name is Brittany (bri-tah-nee)
 
-##Welcome to my corner of the internet!
+## Welcome to my corner of the internet!
 
 ![pixel-study](https://github.com/user-attachments/assets/ae3eb50b-c7e1-4c48-bc5e-a1f449da8a8c)
 
