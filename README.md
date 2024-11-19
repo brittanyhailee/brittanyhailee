@@ -1,7 +1,7 @@
 ## Hi! My name is ⋆˚࿔ Brittany 𝜗𝜚˚⋆ (bri-tah-nee) 
 or you can just call me Britt if it's too difficult ('-'*)(,_,*)('-'*)(,_,*)
 
-### Good job! You found one of my digital footprints („• ֊ •„)
+### You found one of my digital footprints („• ֊ •„)
 (I wasn't hiding anyway...)
 
 ![pixel-study](https://github.com/user-attachments/assets/ae3eb50b-c7e1-4c48-bc5e-a1f449da8a8c)
