@@ -10,7 +10,7 @@ or you can just call me Britt if it's too difficult ('-'*)(,_,*)('-'*)(,_,*)
 ![brittanyhailee's Streak](https://github-readme-streak-stats.herokuapp.com/?user=brittanyhailee&theme=gotham&hide_border=false)
 ![brittanyhailee's Stats](https://github-readme-stats.vercel.app/api?username=brittanyhailee&theme=gotham&show_icons=true&hide_border=false&count_private=true)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+[![](https://visitcount.itsvg.in/api?id=brittanyhailee&label=esteemed%20guests&color=10&icon=9&pretty=true)](https://visitcount.itsvg.in)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 <!--
 **brittanyhailee/brittanyhailee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
