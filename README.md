@@ -10,11 +10,12 @@ or you can just call me Britt if it's too difficult ('-'*)(,_,*)('-'*)(,_,*)
 ![brittanyhailee's Streak](https://github-readme-streak-stats.herokuapp.com/?user=brittanyhailee&theme=gotham&hide_border=false)
 ![brittanyhailee's Stats](https://github-readme-stats.vercel.app/api?username=brittanyhailee&theme=gotham&show_icons=true&hide_border=false&count_private=true)
 
-[![](https://visitcount.itsvg.in/api?id=brittanyhailee&label=lovely%20people&color=10&icon=4&pretty=true)](https://visitcount.itsvg.in)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+[![](https://visitcount.itsvg.in/api?id=brittanyhailee&label=lovely%20people&color=10&icon=4&pretty=true)](https://visitcount.itsvg.in)⠀⠀⠀⠀⠀
 
+𓆝 𓆟 𓆞 𓆝 𓆟 𓆞⠀⠀⠀⠀⠀⠀⠀⠀
+![Copy of Black Technology LinkedIn Banner](https://github.com/user-attachments/assets/6775403c-df4d-4d0c-ae7a-bf5ddeda6f53)
 <!--
 **brittanyhailee/brittanyhailee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
