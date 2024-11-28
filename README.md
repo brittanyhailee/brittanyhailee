@@ -12,7 +12,7 @@ or you can just call me Britt if it's too difficult ('-'*)(,_,*)('-'*)(,_,*)
 
 [![](https://visitcount.itsvg.in/api?id=brittanyhailee&label=lovely%20people&color=10&icon=4&pretty=true)](https://visitcount.itsvg.in)⠀⠀⠀⠀⠀
 
-     𓆞 𓇼 ⋆｡˚ 𓆟 🫧⋆.ೃ࿔*:･ 𓆟 𓆞 𓆝 just𓆟 𓆞 𓇼 ⋆｡˚keep ⋆｡˚ 𓆞 𓆝 𓆟 swimming𓆞⠀🫧⋆.ೃ࿔*:･ 𓆝 𓆟 𓆞 𓇼 ⋆｡ 𓆞⠀🫧⋆.ೃ࿔*:･ 𓆝  𓇼 ⋆｡˚ ⋆｡˚ 𓆞 𓆝 𓆟 𓆝
+     𓆞 𓇼 ⋆｡˚ 𓆟 🫧⋆.ೃ࿔* 𓆟 𓆞 𓆝 just𓆟 𓆞 𓇼 ⋆｡˚keep ⋆｡˚ 𓆞 𓆝 𓆟 swimming𓆞⠀🫧⋆.ೃ࿔*:･ 𓆝 𓆟 𓆞 𓇼 ⋆｡ 𓆞⠀🫧⋆.ೃ࿔*:･ 𓆝  𓇼 ⋆｡˚ ⋆｡˚ 𓆞 𓆝 𓆟 𓆝
 ![Copy of Black Technology LinkedIn Banner](https://github.com/user-attachments/assets/6775403c-df4d-4d0c-ae7a-bf5ddeda6f53)
 <!--
 **brittanyhailee/brittanyhailee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
