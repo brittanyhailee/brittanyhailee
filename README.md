@@ -12,8 +12,8 @@ or you can just call me Britt if it's too difficult ('-'*)(,_,*)('-'*)(,_,*)
 
 [![](https://visitcount.itsvg.in/api?id=brittanyhailee&label=lovely%20people&color=10&icon=4&pretty=true)](https://visitcount.itsvg.in)⠀⠀⠀⠀⠀
 
-     𓆞𓇼🫧.𓆞"I begin with an idea and then it becomes something else."⠀🫧⋆.ೃ࿔*:･𓆟 𓆞 𓇼 ⋆｡ 𓆞⠀🫧⋆.ೃ࿔*:･ 𓆝  𓇼 ⋆｡˚ ⋆｡˚ 𓆞 𓆝 𓆟 𓆝
-<p align="center"> <i>Pablo Picasso</i></p>
+     𓆞 𓇼🫧.࿔* "I begin with an idea and then it becomes something else."🫧⋆.ೃ࿔*:･𓆟 𓆞 𓇼 ⋆｡ 𓆞⠀🫧⋆.ೃ࿔*:･ 𓆝  𓇼 ⋆｡˚ ⋆｡˚ 𓆞 𓆝 𓆟 𓆝
+<p align="center"> <i>Pablo Picasso</i></p> 
 
 ![Copy of Black Technology LinkedIn Banner](https://github.com/user-attachments/assets/6775403c-df4d-4d0c-ae7a-bf5ddeda6f53)
 <!--
